@@ -1,1 +1,1 @@
-# sripamidi_profile.com
+# sripamidi_profile
